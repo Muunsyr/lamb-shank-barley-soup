@@ -28,7 +28,7 @@ Add the chopped onions, garlic, carrots, potatoes and celery and cook for 5 minu
 
 ### Step 2:
 Return the shanks to the pan and add all the beef stock, water, barley and the 2 tablespoons of chopped fresh rosemary.
-Bring to the boil then reduce the heat to low and simmer, covered, for 2 hours.
+Bring to the boil then reduce the heat to low and simmer, covered, for 2 hours (to make lamb nice and tender, ensure it isn't boiling).
 
 ### Step 3:
 Remove the shanks and cool slightly.
